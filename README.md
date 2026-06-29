@@ -1,1 +1,1 @@
-# expert-sniffle-ubiquitus-sniffle
+# expert-sniffl-ubiquitous-sniffle
